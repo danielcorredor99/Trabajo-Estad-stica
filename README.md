@@ -1,1 +1,1 @@
-# Trabajo-estad-stica-
+# Trabajo Estadística
